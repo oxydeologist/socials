@@ -3,9 +3,11 @@
 Contains List of Animes that I've watched and rated in my own honest opinion
 Created <b>7/15/2022</b>
 Updated <b>not yet to be updated</b>
+Favourite Genre : <b>Yuri lmao</b>
 
 ## Currently Watching
 Lyrocirs Recoil
+
 Spy x Family
 
 
@@ -27,4 +29,8 @@ A side story from A Certain Magical Index featuring the Life of Misaka Mikoto wi
 ### A Cerain Scientific Accelerator - 1 Season - 8/10
 Not really into Accelerator but damn it was better than what I have expected. I couldn't put it into words but to whoever is reading this you should give it a try.
 
-### 
+### Hibike! Euphonium - 2 Seasons 2 Movies - 11/10
+One of my personal Favorites! People would shrug this anime off as "K-on 2.0" but it's not and the only way you would know is to watch the show. I highly recommend this one
+
+### Mikagura School Suite - 1 Season - 8.7/19
+Yuri anime, Cute Girls doimg cute things. Literally MY TYPE of anime but dropped the rating because of the animation that seemed lazy
