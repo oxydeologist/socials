@@ -13,4 +13,4 @@ socials and stuff
        width="100" 
        height="100"></a>
 
-  <p align="center">
+<p align="center">
