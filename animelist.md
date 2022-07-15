@@ -6,7 +6,7 @@ Updated <b>not yet to be updated</b>
 Favourite Genre : <b>Yuri lmao</b>
 
 ## Currently Watching
-Lyrocirs Recoil
+Lycoris Recoil
 
 Spy x Family
 
