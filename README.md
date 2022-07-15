@@ -10,7 +10,7 @@
        width="100" 
        height="100"></a>
   <br></br>
-  <b><a href="https://myanimelist.net/profile/oxydeologist">MyAnimeList</a>(updating stuff once in a while. honesty just refer to <a href="anime.md">This List</a> where I update it often)
+  <b><a href="animelist.md">Anime List!</a></b> if You're curious on what am I watching and the stuff I have already watched
   </p>
   
    # osu! stuff
