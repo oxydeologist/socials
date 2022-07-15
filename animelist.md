@@ -15,5 +15,16 @@ Spy x Family
 ## Completed Animes
 List of Completed Animes and Ratings with Reviews that people will totally read!
 
-### A Certain Scientific Index - 3 Seasons - 8.9/10
+### 18if - 1 Season - 7/10
+Low budget anime. dude got trapped in his dream and got into a coma and within that coma he tries to free girls that got into a coma because of a trauma. the end.
+
+### A Certain Magical Index - 3 Seasons - 8.9/10
 Good Story and Character Design. One of my top animes but sadly for me, Third season flopped and I kinda don't get the hype out of it unlike the previous Seasons. Good Series Overall
+
+### A Certain Scientific Railgun - 3 Seasons - 9.3/10
+A side story from A Certain Magical Index featuring the Life of Misaka Mikoto with her friends. The story is slightly better than Index but not to the point where you can say that "It's better than Index". Also Good Series I would recommend.
+
+### A Cerain Scientific Accelerator - 1 Season - 8/10
+Not really into Accelerator but damn it was better than what I have expected. I couldn't put it into words but to whoever is reading this you should give it a try.
+
+### 
