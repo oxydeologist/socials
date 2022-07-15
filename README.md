@@ -10,7 +10,6 @@
        width="100" 
        height="100"></a>
   <br></br>
-  <b><a href="animelist.md">Anime List!</a></b> if You're curious on what am I watching and the stuff I have already watched
   </p>
   
    # osu! stuff
