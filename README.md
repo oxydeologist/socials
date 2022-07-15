@@ -1,5 +1,6 @@
 # oxyde
 socials and stuff
+
 <p align="center">
 
 <a href="https://twitter.com/yabaiokushii">
@@ -7,7 +8,9 @@ socials and stuff
        width="100" 
        height="100"></a>
 
-<a href="https://osu.ppy.sh/u/rudj">
+  <a href="https://osu.ppy.sh/u/oxydeologist">
   <img src="https://i.imgur.com/79GpYI7.png"  
        width="100" 
        height="100"></a>
+
+  <p align="center">
