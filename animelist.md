@@ -54,3 +54,6 @@ Yuri anime, Cute Girls doimg cute things. Literally MY TYPE of anime but dropped
 # Waifus
 
   Did I forgot to mention these beautiful girls?
+  
+  ### Mikan Neru
+![](https://cdn.discordapp.com/attachments/983253938260303902/994114577421844501/20220706_082504.jpg)
