@@ -31,7 +31,7 @@ Mouse - <b>Logitech G304 & Bloody A60</b>
 
 Headsets - <b>dbE Gm350 | Armaggeddon Atom7 | Fantech OMNI MH83</b>
 
-### Keyboard
+## Keyboard
 
 ### Current Main Board
 <b>Custom 68% with Alumunium Plate and Gateron Milky Yellows Lubed with Krytox 205g0 Holee Modded +Foam</b>
