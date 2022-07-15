@@ -8,9 +8,12 @@ Updated 7/15/2022
 
 This looks depressing but yeah I live in a dormitory at the moment so :shrug:
 
-# Nerd PC Specs if you're into that stuff 👀
+## Nerd PC Specs if you're into that stuff 👀
+I still can't believe you would look into this knowing what you just saw
 
-### Laptop
+but oh well I guess curiousity got you so here ya go
+
+## Laptop
 <b>Lenovo Yoga C640-13IML i7-10th Gen Something Something</b>
 
 <b>16 GB of RAM</b>
