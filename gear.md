@@ -23,5 +23,5 @@ but oh well I guess curiousity got you so here ya go
 <b>Nemesis X-5 Kingfisher Laptop Cooler/Radiator</b>
 
 ## Peripherals
-
+<b>Wacom CTL -472 see driver <a href="settings.md">Here</a>
 
