@@ -13,7 +13,7 @@
   <b><a href="https://myanimelist.net/profile/oxydeologist">Weeb Shit</a>
   </p>
   
-  #osu! stuff
+   # osu! stuff
   <p align="center">
   <a href="settings.md">settings</a> | 
   <a href="specs.md">Peripherals</a> |
