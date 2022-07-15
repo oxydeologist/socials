@@ -23,18 +23,18 @@ but oh well I guess curiousity got you so here ya go
 <b>Nemesis X-5 Kingfisher Laptop Cooler/Radiator</b>
 
 ## Peripherals
-<b>Wacom CTL -472 with <a href="settings.md">this</a> driver</b>
+Tablet - <b>Wacom CTL -472 with <a href="settings.md">this</a> driver</b>
 
-<b>Sayobot O2C w/ Gateron Ink Blacks or Gateron Milky Yellows Lubed with Krytox 205g0</b>
+Keypad - <b>Sayobot O2C w/ Gateron Ink Blacks or Gateron Milky Yellows Lubed with Krytox 205g0</b>
 
-<b>Logitech G304 & Bloody A60</b>
+Mouse - <b>Logitech G304 & Bloody A60</b>
 
-<b>dbE Gm350 | Armaggeddon Atom7 | Fantech OMNI MH83</b>
+Headsets - <b>dbE Gm350 | Armaggeddon Atom7 | Fantech OMNI MH83</b>
 
 ## Keyboard
 
 ### Current Main Board
-<b>Custom Made 68% with Alumunium Plate and Gateron Milky Yellows Lubed with Krytox 205g0 Holee Modded +Foam</b>
+<b>Custom 68% with Alumunium Plate and Gateron Milky Yellows Lubed with Krytox 205g0 Holee Modded +Foam</b>
 
 ### Other Boards
 <b>Digital Alliance Mecca Fighter TKL with Outemu Reds (Replaced with Gateron Reds but Spacebar is broken so :shrug)</b>
