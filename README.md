@@ -11,8 +11,10 @@
        height="100"></a>
   <br></br>
   <b><a href="https://myanimelist.net/profile/oxydeologist">Weeb Shit</a>
+  </p>
   
+  #osu! stuff
+  <p align="center">
   <a href="settings.md">settings</a> | 
-  <a href="specs.md">specs</a> |
-  <a href="https://www.youtube.com/channel/UCnkzp15TmP4NqnvGky2Goyw">snipers people</a></b>
+  <a href="specs.md">Peripherals</a> |
 </p>
