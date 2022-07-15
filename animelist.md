@@ -3,6 +3,7 @@
 Contains List of Animes that I've watched and rated in my own honest opinion
 Created <b>7/15/2022</b>
 Updated <b>not yet to be updated</b>
+
 Favourite Genre : <b>Yuri lmao</b>
 
 ## Currently Watching
