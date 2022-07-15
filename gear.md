@@ -13,7 +13,7 @@ I still can't believe you would look into this knowing what you just saw
 
 but oh well I guess curiousity got you so here ya go
 
-## Laptop
+### Laptop
 <b>Lenovo Yoga C640-13IML i7-10th Gen Something Something</b>
 
 <b>16 GB of RAM</b>
@@ -22,7 +22,7 @@ but oh well I guess curiousity got you so here ya go
 
 <b>Nemesis X-5 Kingfisher Laptop Cooler/Radiator</b>
 
-## Peripherals
+### Peripherals
 Tablet - <b>Wacom CTL -472 with <a href="settings.md">this</a> driver</b>
 
 Keypad - <b>Sayobot O2C w/ Gateron Ink Blacks or Gateron Milky Yellows Lubed with Krytox 205g0</b>
@@ -31,7 +31,7 @@ Mouse - <b>Logitech G304 & Bloody A60</b>
 
 Headsets - <b>dbE Gm350 | Armaggeddon Atom7 | Fantech OMNI MH83</b>
 
-## Keyboard
+### Keyboard
 
 ### Current Main Board
 <b>Custom 68% with Alumunium Plate and Gateron Milky Yellows Lubed with Krytox 205g0 Holee Modded +Foam</b>
