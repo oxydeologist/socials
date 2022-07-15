@@ -10,7 +10,7 @@
        width="100" 
        height="100"></a>
   <br></br>
-  <b><a href="https://myanimelist.net/profile/oxydeologist">MyAnimeList</a>(might not be accurate)
+  <b><a href="https://myanimelist.net/profile/oxydeologist">MyAnimeList</a>(updating stuff once in a while)
   </p>
   
    # osu! stuff
