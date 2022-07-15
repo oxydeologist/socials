@@ -2,7 +2,7 @@
 
 Updated as of 7/15/2022
 
-Scuffed setup can be found <b><a href="gears.md">here</a></b>
+Scuffed setup can be found <b><a href="gear.md">here</a></b>
   
 ## Tablet Settings
 
