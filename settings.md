@@ -1,7 +1,7 @@
 # Settings
 
 updated as of 7/15/2022
-Check out my stuff at <a href="gears.md>/a>
+Check out my stuff at <a href="gears.md</a>
   
 ## Tablet Settings
 
