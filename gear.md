@@ -4,4 +4,4 @@ Created 7/15/2022
 Updated 7/15/2022
 
 ### Actual Setup
-https://pbs.twimg.com/media/FQXTCwyacAAVNFd?format=jpg&name=small
+![](https://pbs.twimg.com/media/FQXTCwyacAAVNFd?format=jpg&name=small)
