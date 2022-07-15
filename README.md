@@ -16,5 +16,5 @@
    # osu! stuff
   <p align="center">
   <a href="settings.md">settings</a> | 
-  <a href="specs.md">Peripherals</a> |
+  <a href="specs.md">Peripherals</a> 
 </p>
