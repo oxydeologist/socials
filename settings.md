@@ -11,5 +11,8 @@ Wacom's Offcial Driver <a href="https://www.wacom.com/en-us/support/product-supp
 ### Area 
 ![Professional_CPL_q6mxDQS4HB](https://user-images.githubusercontent.com/68185772/179213123-b3110785-b84a-47d3-beec-0c9cc679741b.png)
 
+### Others
+Q and T for K1 - K2
+Drag
 
 
