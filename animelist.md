@@ -33,5 +33,11 @@ Not really into Accelerator but damn it was better than what I have expected. I 
 ### Hibike! Euphonium - 2 Seasons 2 Movies - 11/10
 One of my personal Favorites! People would shrug this anime off as "K-on 2.0" but it's not and the only way you would know is to watch the show. I highly recommend this one
 
+### K-on! - 2 Seasons 1 Movie - 9.7/10
+One if not my favourite series in this entire list. I have watched this 14x now and I'm not stopping
+
 ### Mikagura School Suite - 1 Season - 8.7/19
 Yuri anime, Cute Girls doimg cute things. Literally MY TYPE of anime but dropped the rating because of the animation that seemed lazy
+
+<p align="centre">
+### Putting more here im lazy ###
