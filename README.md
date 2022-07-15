@@ -15,7 +15,7 @@
    # Other Stuff
   <p align="center">
   |
-  <b><a href="settings.md">settings</a></b> <- osu! |
+  <b><a href="settings.md">osu! settings</a></b> |
   <b><a href="specs.md">Peripherals</a></b> |
   <b><a href="animelist.md">Anime List</a></b> |
 </p>
