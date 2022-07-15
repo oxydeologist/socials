@@ -1,4 +1,5 @@
-# oxydeologist
+# oxydeologist (づ｡◕‿‿◕｡)づ
+
 <a href="https://www.youtube.com/watch?v=9qRBOqfTTCQ">Banger</a>
 <p align="center">
   <a href="https://twitter.com/yabaiokushii">
