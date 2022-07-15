@@ -55,8 +55,6 @@ Yuri anime, Cute Girls doimg cute things. Literally MY TYPE of anime but dropped
 
   Did I forgot to mention these beautiful girls?
   
-  ### Arona
+  ### Arona from Blue Archive
 ![](https://cdn.discordapp.com/attachments/983253938260303902/994114577421844501/20220706_082504.jpg)
   
-  ### Mutsuki :anger: :anger: :anger:
-![](https://boe-tea-pximg.herokuapp.com/img-original/img/2021/12/16/02/01/49/94803663_p0.jpg)
