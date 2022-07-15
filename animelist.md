@@ -49,3 +49,8 @@ Yuri anime, Cute Girls doimg cute things. Literally MY TYPE of anime but dropped
 
 <p align="centre">
 ### Putting more here im lazy ###
+  
+  
+# Waifus
+
+  Did I forgot to mention these beautiful girls?
