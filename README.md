@@ -4,6 +4,10 @@
 
 Have something to say? Then let's talk! zulf#4628
 
+### Short introduction
+Hi I'm Oxydeologist but I go by Oxy or Oxyde depends on what you want me to call. Trying to live my life the best as I can.
+
+
 ## Socials
 <p align="center">
   <a href="https://twitter.com/yabaiokushii">
