@@ -16,7 +16,7 @@ Let's Talk! zulf#4628
   <br></br>
   </p>
   
-   # Other Stuff
+   ## Other Stuff
   <p align="center">
   |
   <b><a href="settings.md">osu! settings</a></b> |
