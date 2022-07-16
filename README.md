@@ -1,7 +1,8 @@
 # oxydeologist (づ｡◕‿‿◕｡)づ
 
 <a href="https://www.youtube.com/watch?v=9qRBOqfTTCQ">Banger</a>
-Let's Talk! zulf#4628
+
+Have something to say? Then let's talk! zulf#4628
 
 ## Socials
 <p align="center">
