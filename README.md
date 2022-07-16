@@ -1,6 +1,9 @@
 # oxydeologist (づ｡◕‿‿◕｡)づ
 
 <a href="https://www.youtube.com/watch?v=9qRBOqfTTCQ">Banger</a>
+Let's Talk! zulf#4628
+
+## Socials
 <p align="center">
   <a href="https://twitter.com/yabaiokushii">
   <img src="https://i.imgur.com/PUQ5uWf.png" 
