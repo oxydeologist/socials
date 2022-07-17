@@ -9,9 +9,9 @@ Updated <b>not yet to be updated</b>
 Favourite Genre : <b>Yuri lmao</b>
 
 ## Currently Watching
-Lycoris Recoil
+Lycoris Recoil (3rd Episode in) <- Prioritizing this first
 
-Spy x Family
+Spy x Family (3rd Episode in)
 
 
 
