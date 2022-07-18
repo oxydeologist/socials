@@ -47,6 +47,9 @@ Well altough this is a movie based off Hibike, I thought it would be nice to hav
 ### Mikagura School Suite - 1 Season - 8.7/19
 Yuri anime, Cute Girls doimg cute things. Literally MY TYPE of anime but dropped the rating because of the animation that seemed lazy
 
+### Violet Evergarden - 1 Season 2 Movies - 15/10
+KyoAni employees needs to ge arrested for making this anime ITS SO GOOD OH MY GOD I CRIED
+
 <p align="centre">
 ### Putting more here im lazy ###
   
