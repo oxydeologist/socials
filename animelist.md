@@ -53,6 +53,9 @@ KyoAni employees needs to ge arrested for making this anime ITS SO GOOD OH MY GO
 <p align="centre">
 ### Putting more here im lazy ###
   
+# Mangas
+Not interested. But planning on reading To Aru Series again
+  
   
 # Waifus
 
