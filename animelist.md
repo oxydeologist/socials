@@ -11,8 +11,6 @@ Favourite Genre : <b>Yuri lmao</b>
 ## Currently Watching
 Lycoris Recoil (3rd Episode in) <- Prioritizing this first
 
-Spy x Family (3rd Episode in)
-
 
 
 
@@ -46,6 +44,9 @@ Well altough this is a movie based off Hibike, I thought it would be nice to hav
 
 ### Mikagura School Suite - 1 Season - 8.7/19
 Yuri anime, Cute Girls doimg cute things. Literally MY TYPE of anime but dropped the rating because of the animation that seemed lazy
+
+### Spy x Family - 1 Season - 10/10
+Couldn't say much here but this one bangs
 
 ### Violet Evergarden - 1 Season 2 Movies - 15/10
 KyoAni employees needs to ge arrested for making this anime ITS SO GOOD OH MY GOD I CRIED
