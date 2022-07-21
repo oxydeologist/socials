@@ -11,6 +11,8 @@ Favourite Genre : <b>Yuri lmao</b>
 ## Currently Watching
 Lycoris Recoil (3rd Episode in) <- Prioritizing this first
 
+Yuru Camp
+
 
 
 
