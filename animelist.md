@@ -9,7 +9,7 @@ Updated <b>not yet to be updated</b>
 Favourite Genre : <b>Yuri lmao</b>
 
 ## Currently Watching
-Lycoris Recoil (3rd Episode in) <- Prioritizing this first
+Lycoris Recoil <- Prioritizing this first
 
 Yuru Camp (semi-dropped, watching it later)
 
