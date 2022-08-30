@@ -10,7 +10,7 @@ Hi I'm Oxydeologist but I go by Oxy or Oxyde depends on what you want me to call
 
 ## Socials
 <p align="center">
-  <a href="https://twitter.com/yabaiokushii">
+  <a href="https://twitter.com/okusheeeesh">
   <img src="https://i.imgur.com/PUQ5uWf.png" 
        width="100" 
        height="100"></a>
