@@ -9,7 +9,6 @@ Updated <b>not yet to be updated</b>
 Favourite Genre : <b>Yuri lmao</b>
 
 ## Currently Watching
-Lycoris Recoil <- Prioritizing this first
 
 Yuru Camp (semi-dropped, watching it later)
 
@@ -43,6 +42,9 @@ One if not my favourite series in this entire list. I have watched this 14x now 
 
 ### Liz to Aoi Tori - Movie - I would kill to watch this/10
 Well altough this is a movie based off Hibike, I thought it would be nice to have it on a seperate rating because of how much I LOVE this movie. The story line really gets you. The design is something you don't often see in animes. It is an enjoyable ride of emotional rollercoaster and you will enjoy it to the max. spoilers : https://www.youtube.com/watch?v=lnvpIX_193I
+
+### Lycoris Recoil - 13 Episodes - 12/10
+Yuri this and Yuri that my all favourite
 
 ### Mikagura School Suite - 1 Season - 8.7/19
 Yuri anime, Cute Girls doimg cute things. Literally MY TYPE of anime but dropped the rating because of the animation that seemed lazy
