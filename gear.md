@@ -13,11 +13,15 @@ I still can't believe you would look into this knowing what you just saw
 but oh well I guess curiousity got you so here ya go
 
 ### Laptop
-<b>Lenovo Yoga C640-13IML i7-10th Gen Something Something</b>
+<b>Acer Predator Triton 300</b>
+
+<b>i7 9750H</b>
+
+<b>RTX 2060</b>
 
 <b>16 GB of RAM</b>
 
-<b>512 GB Storage</b>
+<b>1TB Storage</b>
 
 <b>Nemesis X-5 Kingfisher Laptop Cooler/Radiator</b>
 
