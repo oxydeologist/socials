@@ -30,7 +30,9 @@ Tablet - <b>Wacom CTL -472 with <a href="settings.md">this</a> driver</b>
 
 Keypad - <b>Sayobot O2C w/ Gateron Ink Blacks or Gateron Milky Yellows Lubed with Krytox 205g0</b>
 
-Mouse - <b>Logitech G304 & Bloody A60</b>
+Mouse - <b>Logitech G304 with Tiger Arcs 1 pads& Bloody A60</b>
+
+Mousepad - <b>HyperX Fury S Cloth L (400 x 490mm)</b>
 
 Headsets - <b>dbE Gm350 | Armaggeddon Atom7 | Fantech OMNI MH83</b>
 
