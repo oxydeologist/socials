@@ -23,6 +23,9 @@ Drag with a "On Paper Feel" Tablet Cover
 1920x1680 Stretched
 
 DPI - 1000
+
 FOV - 110
+
 Sens - 1.5
+
 ADS - 1.37
