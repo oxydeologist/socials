@@ -8,9 +8,15 @@ Updated <b>not yet to be updated</b>
 
 Favourite Genre : <b>Yuri lmao</b>
 
+## The Wait List
+
+Yuru Camp
+
+Yama no Susume (Encouragement of Climb)
+
 ## Currently Watching
 
-Yuru Camp (semi-dropped, watching it later)
+None
 
 
 
