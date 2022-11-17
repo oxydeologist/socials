@@ -24,7 +24,7 @@ Hi I'm Oxydeologist but I go by Oxy or Oxyde depends on what you want me to call
    ## Other Stuff
   <p align="center">
   |
-  <b><a href="settings.md">osu! settings</a></b> |
+  <b><a href="settings.md">Game Settings</a></b> |
   <b><a href="gear.md">Peripherals</a></b> |
   <b><a href="animelist.md">Anime List</a></b> |
 </p>
