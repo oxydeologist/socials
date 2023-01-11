@@ -39,10 +39,12 @@ Headsets - <b>dbE Gm350 | Armaggeddon Atom7 | Fantech OMNI MH83</b>
 ## Keyboard
 
 ### Current Main Board
-<b>Custom 68% with Alumunium Plate and Gateron Milky Yellows Lubed with Krytox 205g0 Holee Modded +Foam</b>
+<b>Fantech Maxfit61 Frost Wireless Reds</b>
 
 ### Other Boards
 <b>Digital Alliance Mecca Fighter TKL with Outemu Reds (Replaced with Gateron Reds but Spacebar is broken so :shrug)</b>
+
+<b>Custom 68% with Alumunium Plate and Gateron Milky Yellows Lubed with Krytox 205g0 Holee Modded +Foam</b>
 
 <b>Vortex Series VX5 with Outemu Blues (Backspace broken when trying to desolder the hotswap sockets)</b>
 
