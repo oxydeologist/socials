@@ -2,15 +2,14 @@
 
 <a href="https://www.youtube.com/watch?v=9qRBOqfTTCQ">Banger</a>
 
-Have something to say? Then let's talk! okushi#4628
+Have something to say? Then let's talk! azul#9019
 
 ### Short introduction
-Hi I'm Oxydeologist but I go by Oxy or Oxyde depends on what you want me to call. Trying to live my life the best as I can.
-
+I go by oxy or zul
 
 ## Socials
 <p align="center">
-  <a href="https://twitter.com/okusheeeesh">
+  <a href="https://twitter.com/okushiwwwww">
   <img src="https://i.imgur.com/PUQ5uWf.png" 
        width="100" 
        height="100"></a>
