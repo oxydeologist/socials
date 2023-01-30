@@ -39,7 +39,7 @@ Headsets - <b>dbE Gm350 | Armaggeddon Atom7 | Fantech OMNI MH83</b>
 ## Keyboard
 
 ### Current Main Board
-<b>Fantech Maxfit61 Frost Wireless Reds</b>
+<b>Fantech Maxfit61 Frost Wireless with Red Switches</b>
 
 ### Other Boards
 <b>Digital Alliance Mecca Fighter TKL with Outemu Reds (Replaced with Gateron Reds but Spacebar is broken so :shrug)</b>
