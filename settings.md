@@ -29,3 +29,7 @@ FOV - 110
 Sens - 1.5
 
 ADS - 1.37
+
+## VALORANT Settings
+4:3 Stretched
+26/360 sens on 1600
