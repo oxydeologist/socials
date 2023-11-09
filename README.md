@@ -2,7 +2,7 @@
 
 <a href="https://www.youtube.com/watch?v=9qRBOqfTTCQ">Banger</a>
 
-Have something to say? Then let's talk! azul#9019
+Have something to say? Then let's talk! okushii on discord
 
 ### Short introduction
 I go by oxy or zul
