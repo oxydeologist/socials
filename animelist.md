@@ -6,7 +6,7 @@ Created <b>7/15/2022</b>
 
 Updated <b>not yet to be updated</b>
 
-Favourite Genre : <b>Yuri lmao</b>
+Favourite Genre : <b>I'll watch anything</b>
 
 ## The Wait List
 
@@ -67,11 +67,4 @@ KyoAni employees needs to ge arrested for making this anime ITS SO GOOD OH MY GO
 # Mangas
 Not interested. But planning on reading To Aru Series again
   
-  
-# Waifus
 
-  Did I forgot to mention these beautiful girls?
-  
-  ### Arona from Blue Archive
-![](https://cdn.discordapp.com/attachments/983253938260303902/994114577421844501/20220706_082504.jpg)
-  
