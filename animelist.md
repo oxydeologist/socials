@@ -4,7 +4,7 @@ Contains List of Animes that I've watched and rated in my own honest opinion
 
 Created <b>7/15/2022</b>
 
-Updated <b>n11/9/2023/b>
+Updated <b>11/9/2023</b>
 
 Favourite Genre : <b>I'll watch anything</b>
 
