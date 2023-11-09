@@ -4,7 +4,7 @@ Contains List of Animes that I've watched and rated in my own honest opinion
 
 Created <b>7/15/2022</b>
 
-Updated <b>not yet to be updated</b>
+Updated <b>n11/9/2023/b>
 
 Favourite Genre : <b>I'll watch anything</b>
 
@@ -60,6 +60,9 @@ Couldn't say much here but this one bangs
 
 ### Violet Evergarden - 1 Season 2 Movies - 15/10
 KyoAni employees needs to ge arrested for making this anime ITS SO GOOD OH MY GOD I CRIED
+
+### U149 - 1 Season - 7.8/10
+Mid ish anime(?) but enjoyable nonetheless
 
 <p align="centre">
 ### Putting more here im lazy ###
