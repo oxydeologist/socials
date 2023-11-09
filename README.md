@@ -9,7 +9,7 @@ I go by oxy or zul
 
 ## Socials
 <p align="center">
-  <a href="https://twitter.com/okushiwwwww">
+  <a href="https://twitter.com/ok6shii">
   <img src="https://i.imgur.com/PUQ5uWf.png" 
        width="100" 
        height="100"></a>
