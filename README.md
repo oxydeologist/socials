@@ -13,7 +13,7 @@ I go by oxy or zul
   <img src="https://i.imgur.com/PUQ5uWf.png" 
        width="100" 
        height="100"></a>
-  <a href="https://osu.ppy.sh/">
+  <a href="https://osu.ppy.sh/u/oxydeologist">
   <img src="https://i.imgur.com/79GpYI7.png"  
        width="100" 
        height="100"></a>
