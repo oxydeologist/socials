@@ -1,5 +1,7 @@
 # okushii (づ｡◕‿‿◕｡)づ
 
+Nobody reads this anyway but you made it here so why not
+
 <a href="https://www.youtube.com/watch?v=9qRBOqfTTCQ">Banger</a>
 
 Have something to say? Then let's talk! okushii on discord
