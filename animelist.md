@@ -24,7 +24,7 @@ Yama no Susume
 List of Completed Animes and Ratings with Reviews that people will totally read!
 
 ### 18if - 1 Season - 7/10
-Low budget anime. dude got trapped in his dream and got into a coma and within that coma he tries to free girls that got into a coma because of a trauma. the end.
+Low budget anime. Pretty solid story line but it gets repetitive after a while
 
 ### A Certain Magical Index - 3 Seasons - 8.9/10
 Good Story and Character Design. One of my top animes but sadly for me, Third season flopped and I kinda don't get the hype out of it unlike the previous Seasons. Good Series Overall
