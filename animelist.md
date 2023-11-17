@@ -12,13 +12,11 @@ Favourite Genre : <b>I'll watch anything</b>
 
 Yuru Camp
 
-Yama no Susume (Encouragement of Climb)
 
 ## Currently Watching
-
-None
-
-
+U149
+Yama no Susume
+22/7
 
 
 
