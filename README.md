@@ -8,7 +8,6 @@ Have something to say? Then let's talk! okushii on discord
 
 ### Short introduction
 Hi I'm Zul. I do variety of things but I mostly play apex. I also do a bit of coding with Python3 and HTML (though I'm still learning I'm getting there. slowly.).
-I'm not a weeb but I do watch animes. If you have a pretty good reccomendation please hit me up as I'm trying to enlarge my anime watchlist!!.
 Bandung, Indonesia.
 
 ## Socials
