@@ -7,7 +7,7 @@ Nobody reads this anyway but you made it here so why not
 Have something to say? Then let's talk! okushii on discord
 
 ### Short introduction
-Hi I'm Zul. I do variety of things but I mostly play apex. I also do a bit of coding with Python3 and HTML (though I'm still learning I'm getting there. slowly.).
+Hi I'm Zul. I do variety of things but I mostly play apex. I also code. abit
 Bandung, Indonesia.
 
 ## Socials
