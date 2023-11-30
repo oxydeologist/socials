@@ -4,7 +4,7 @@ Created 7/15/2022
 Updated 11/9/2023
 
 ### Actual Setup
-![](https://pbs.twimg.com/media/FQXTCwyacAAVNFd?format=jpg&name=small)
+![](https://scontent.xx.fbcdn.net/v/t51.39111-15/278565075_715285956173865_3633452301999578087_n.jpg?_nc_cat=110&ccb=1-7&_nc_sid=510075&_nc_ohc=yyMTkrWCSnYAX9BF07P&_nc_ad=z-m&_nc_cid=0&_nc_ht=scontent.xx&oh=02_AVDg2rdMZiU2V_EN-fhqONUDsPIxLED2zih6rxK5YW4vcA&oe=656D8C0A)
 
 
 ## Nerd PC Specs if you're into that stuff 👀
